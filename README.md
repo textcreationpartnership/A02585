@@ -35,9 +35,16 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The righteous mammon an hospitall-sermon preach't in the solemne assembly of the city on Munday in E
+
+1. TO MY MVCH
+HONOR'D FREND
+Sr HENRY BAKER
+Knight & Baronet.
+
 #####Body#####
-The righteous mammon an hospitall-sermon preach't in the solemne assembly of the city on Munday in E
+1 TIM. 6. 17.Charge them that are rich in this
+world, that they be not high minded,
+nor truſt in vnc
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
